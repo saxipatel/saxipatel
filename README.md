@@ -1,4 +1,4 @@
-# Hi, I'm Saxi 👋
+# Hi, I'm Saxi Patel 👋
 
 I'm currently pursuing my **MS in Computer Science at Stevens Institute of Technology**, graduating in May 2027.
 
